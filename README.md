@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @palfstaken also my name is Burak Eryilmaz.
+- 👀 I’m interested in gaming,music,data and artificial intelligences.
+- 🌱 I’m currently learning data stractures and algorithms.
+- 📫 How to reach me :discord palF#8169
